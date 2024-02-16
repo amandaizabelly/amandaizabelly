@@ -1,3 +1,4 @@
+Amanda Izabelly Andrade da RochA
 16 ANOS 
 SEGUNDO ANO "D"
 COLEGIO ARNALDO BUSATO 
